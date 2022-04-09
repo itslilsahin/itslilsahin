@@ -2,11 +2,11 @@
 
 [<img src="https://lanyard-profile-readme.vercel.app/api/853235926825435146" align="right">](https://discord.com/users/853235926825435146)
 
-17 yaşında kendi halinde takılıp dalgasına bot yapmaya başlayıp botçu olmaya karar veren fistigim
+ben mastürbasyon yapabilen ilk ve tek zombiyim
 
 
 <details>
-  - <summary>Sosyal Medya Hesaplarım</summary>
+  <summary>Sosyal Medya Hesaplarım</summary>
   
 - [Discord](https://discord.com/users/853235926825435146)
 - [Instagram](https://www.instagram.com/lilsahin210/)
