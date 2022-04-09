@@ -6,7 +6,7 @@
 
 
 <details>
-  <summary>Sosyal Medya Hesaplarım</summary>
+  - <summary>Sosyal Medya Hesaplarım</summary>
   
 - [Discord](https://discord.com/users/853235926825435146)
 - [Instagram](https://www.instagram.com/lilsahin210/)
