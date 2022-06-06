@@ -1,6 +1,6 @@
 ### Selam 👋
 
-[<img src="https://lanyard-profile-readme.vercel.app/api/853235926825435146" align="right">](https://discord.com/users/853235926825435146)
+[<img src="https://lanyard-profile-readme.vercel.app/api/966877649018433607" align="right">](https://discord.com/users/853235926825435146)
 
 ben mastürbasyon yapabilen ilk ve tek zombiyim
 
