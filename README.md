@@ -2,7 +2,7 @@
 
 [<img src="https://lanyard-profile-readme.vercel.app/api/966877649018433607" align="right">](https://discord.com/users/853235926825435146)
 
-ben mastürbasyon yapabilen ilk ve tek zombiyim
+Ben mastürbasyon yapabilen ilk ve tek zombiyim
 
 
 <details>
